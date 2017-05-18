@@ -1,3 +1,3 @@
 # hello-world
-just say hi to world
-Uma here
+just say hi to earth
+Uma  Nelige here
